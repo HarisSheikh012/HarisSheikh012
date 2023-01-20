@@ -9,4 +9,4 @@
 
 - 📫 How to reach me **harisbabar012@gmail.com**
 
-- ⚡ Fun fact **Traveling, Hiking, Gym**
+- ⚡ Fun fact **Traveling, Hiking, Explore Nature, Gym**
