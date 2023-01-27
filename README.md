@@ -7,6 +7,6 @@
 
 - 🌱 I’m currently learning **Everything 😂**
 
-- 📫 How to reach me **harisbabar012@gmail.com**
+- 🥅 2020 Goals: Learn, Learn & Learn
 
 - ⚡ Fun fact **Traveling, Hiking, Explore Nature, Gym**
