@@ -7,6 +7,6 @@
 
 - 🌱 I’m currently learning **Everything 😂**
 
-- 🥅 2020 Goals: **Learn, Learn & Learn**
+- 🥅 2023 Goals: **Learn, Learn & Learn**
 
 - ⚡ Fun fact **Traveling, Hiking, Explore Nature, Gym**
