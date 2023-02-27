@@ -9,4 +9,4 @@
 
 - 🥅 2023 Goals: **Learn, Learn & Learn**
 
-- ⚡ Fun fact **Traveling, Hiking, Explore Nature, Gym**
+- ⚡ Fun fact **Coding, Traveling, Hiking, Explore Nature, Gym**
